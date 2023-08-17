@@ -1,2 +1,2 @@
 # foconuker
-Top g nuker only 
+Top g nuker only discord server nuker open source ready for nuking it can ban all and del all channels
